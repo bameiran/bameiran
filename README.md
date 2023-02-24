@@ -1,6 +1,6 @@
 ### Bam e Iran | بام ایران
 
-بام ایران ؛ انقلاب مردم و جوانان ایران
+بام ایران ؛ صبح بیداری ایران 
 ---------
 
 Bame-e-Iran.pdf Checksum List for verification.
